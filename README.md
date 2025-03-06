@@ -1,5 +1,5 @@
 hewoo it's shannen here! ฅ՞•ﻌ•՞ฅ  
-im currently on my final year of university <3  
+recently i got my Math degree <3  
 
 
 
