@@ -1,5 +1,5 @@
 hewoo it's shannen here! ฅ՞•ﻌ•՞ฅ  
-recently i got my Math degree <3  
+
 
 
 
